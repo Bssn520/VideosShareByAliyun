@@ -1,7 +1,8 @@
-## 本文根据阿里云盘用户[狗啊狗](https://www.aliyundrive.com/er/u/7705d20f228f4c6889937d026630f472)分享的xlsx影视列表文件进行合并（方便搜索，直接Ctrl + F即可）。
-- [原列表文件分享链接](https://www.aliyundrive.com/s/rbbxkGRiLQa)
-- [备用链接 Onedrive](https://1drv.ms/x/s!Au22YyCM57SFgijXrXdEzeC8_LZr?e=Fwu9Pv)
-## 如遇文件失效可留言，有空会更新。
+## 🫡本文根据阿里云盘用户[狗啊狗](https://www.aliyundrive.com/er/u/7705d20f228f4c6889937d026630f472)分享的xlsx影视列表文件进行合并（方便搜索，直接Ctrl + F即可）。
+- [🌈原列表文件分享链接](https://www.aliyundrive.com/s/rbbxkGRiLQa)
+- [🌈备用链接 Onedrive](https://1drv.ms/x/s!Au22YyCM57SFgijXrXdEzeC8_LZr?e=Fwu9Pv)
+## 😘如遇文件失效可留言，有空会更新。
+<p align="right">2023.1.6晚🥰</p>
 
 
 | 13区监察课1080P（2017）【简繁内封】豆瓣评分：8.8                       | https://www.aliyundrive.com/s/sehWiW5uMJu |      |          |                                            |          |
